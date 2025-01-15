@@ -22,7 +22,7 @@ Why stars turns around black holes? Why planets turns around stars? Why people t
 
 If ALLAH gives permission we will see how ALLAH gifted earth with abundant, cleanest, safest, non-flammable, non-explosive, strongest, cheapest, infinite range, no need to charge -always %100 full, producing its own energy-, no loss in performance over time and no loss in performance at low temperatures on the contrary increasing performance at low temperatures, no need to recycle Fusion Battery: THE IRON: "The Strongest Ferromagnet"
 
-If MOST SACRED gives permission get ready to learn after first formula for Electromagnetism (time varying way) another (new) second and third formulas (for space and space-time varying ways) of how to generate Electricity from Magnetism that ALLAH Has Taught to HIS Servant ABDURRAHMAN AYYILDIZ
+If THE SACRED gives permission get ready to learn after first formula for Electromagnetism (time varying way) another (new) second and third formulas (for space and space-time varying ways) of how to generate Electricity from Magnetism
 
 [https://x.com/TANRININresulu/status/1845345836756062398](https://x.com/TANRININresulu/status/1845345836756062398)
 
